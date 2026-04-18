@@ -1,2 +1,0 @@
-# walkasterr
-Es personal
